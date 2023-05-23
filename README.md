@@ -23,6 +23,8 @@ Además, a día de hoy, **Counter-Strike: Global Offenisve** es unos de los prin
 
 Las competiciones más importantes suelen tener millones de espectadores en todo el mundo. Esto provoca interacción entre los jugadores/espectadores en redes sociales o foros, lo que crea un ambiente que combina el contenido digital con la interacción social.
 
+Como conclusión, cabe destacar que **Counter-Strike: Global Offensive** es un ejemplo de hibridación por sus diferentes aspectos tanto virtuales como de interacción social, y brinda una experiencia única a los jugadores.
+
 ![image](https://media.ambito.com/p/1f3b8eed1b98b9358ab5c9e1fb9583ef/adjuntos/239/imagenes/039/838/0039838580/torneo-counter-strike-esports.jpg)
 
 ## Re-descubriendo la hibridacion: T-Mobilitat
